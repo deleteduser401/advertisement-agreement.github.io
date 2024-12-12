@@ -1,1 +1,1 @@
-# deleteduser401-advertisement-agreementdeleteduser401-advertisement-agreement.github.io
+# advertisement-agreement.github.io
